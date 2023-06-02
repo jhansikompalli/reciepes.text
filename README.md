@@ -2,7 +2,11 @@
    my reciepes
    chicken curry
    french fries
-    
+      
+      
+   beans 
+   pizza
+   
     kshxis
     kjsa
     
